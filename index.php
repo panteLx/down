@@ -1,0 +1,1 @@
+<h3>we're sorry to tell you that ACCS.WTF will shut down immediately due to the personal reasons. It's not possible to buy new Services or Accounts anymore.<br> Thank you for the great times in the past year.</3>
